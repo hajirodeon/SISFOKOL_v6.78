@@ -6,4 +6,4 @@ SISFOKOL_v6.78 Sedang Tahap Pengembangan.
 Untuk kebutuhan : SD, SMP, SMA, SMK, MTS, MA.
 
 
-Menuju Rilis : Desember 2022.
+Menuju Rilis : Januari 2023.
