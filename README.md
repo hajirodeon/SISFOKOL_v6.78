@@ -3,7 +3,7 @@
 
 SISFOKOL_v6.78 (Code:Tekniknih), Sedang Tahap Pengembangan. 
 
-Menuju Rilis : Menjelang Lebaran 2023 ini.
+Menuju Rilis : Awal Mei 2023 ini.
 
 ---
 
