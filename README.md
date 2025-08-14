@@ -34,7 +34,11 @@ https://github.com/hajirodeon/SISFOKOL_v6_SMK
 
 
 
+---
 
+https://sociabuzz.com/hajirodeon
+
+Teknik khusus nih, bagi kamu2 yg mau support karya2 dan produk2 ku ya 😊😁
 
 
 
